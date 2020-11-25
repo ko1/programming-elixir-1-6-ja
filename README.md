@@ -12,8 +12,9 @@
 ## 書評用書籍プレゼントキャンペーン
 
 本書の書評を書いていただける方（若干名）に書籍をお送りさせていただきます。
-こちらのフォームよりご登録ください: https://docs.google.com/forms/d/e/1FAIpQLSdXY_Qdz5KrT6mylrIdQVyJHRgh34dUmseRyUjLqhmHuuu2_Q/viewform?usp=sf_link
 当選者にご連絡いたします（当選されなかった方にはご連絡しませんのでご了承ください）。
+
+→ 締め切りました。たくさんのご応募ありがとうございました。
 
 ## 問題をみつけたら
 
